@@ -1,0 +1,1 @@
+# czarna-lista-jbzd
